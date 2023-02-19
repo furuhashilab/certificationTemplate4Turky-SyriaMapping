@@ -1,6 +1,6 @@
 ## Certificate Template
 
-YouthMappersAGU has created a format for a certificate to be sent to those who participated in the Mappathon in support of Turkey and Syria.
+YouthMappersAGU has created a format for a certificate to be sent to those who participated in the Mapathon in support of Turkey and Syria.
 All YouthMappers chapters and organisers of mapping events in support of Turkey and Syria are free to use it. 
 
 
